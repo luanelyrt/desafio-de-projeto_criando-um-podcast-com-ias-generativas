@@ -1,0 +1,1 @@
+### **ATENÇÃO:** essa ferramenta sugerida não é mais gratuita (foi utilizado o Microsoft Copilot para gerar imagens de capa e de perfil do PodCast).
